@@ -240,4 +240,4 @@ Age of Conan is available for free download and is the full version of the game,
 Embark on your epic journey in the world of Hyboria today! Download Age of Conan now and experience the adventure like never before!
 
 ---
-**Last updated:** 2026-10-07 01:07:05 UTC
+**Last updated:** 2026-10-07 07:53:41 UTC
